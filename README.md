@@ -1,3 +1,3 @@
 # smilehe.github.io
 
-wwww.smilehe.xyz
+www.smilehe.xyz
