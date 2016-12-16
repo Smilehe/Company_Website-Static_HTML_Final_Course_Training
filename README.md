@@ -1,3 +1,3 @@
 # smilehe.github.io
 
-www.smilehe.xyz
+www.yixingkeji.online
